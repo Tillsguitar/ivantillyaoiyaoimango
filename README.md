@@ -1,4 +1,3 @@
-# ivantillyaoiyaoimango
-
-<img width="695" height="695" alt="image" src="https://github.com/user-attachments/assets/edef96dc-4f43-4970-9bd2-d627bb60597d" />
-<img width="240" height="240" alt="image" src="https://github.com/user-attachments/assets/ed672b63-7f27-4346-be68-1fe9da941a66" />
+# ivantillyaoiyaooi
+                                          <img width="737" height="553" alt="Screenshot 2026-07-01 144033" src="https://github.com/user-attachments/assets/2d41c891-8abd-400e-aef2-e58e1bb86606" />
+                                            ♬⋆.˚                                              
