@@ -1,7 +1,7 @@
- <img width="737" height="553" alt="Screenshot 2026-07-01 144033" src="https://github.com/user-attachments/assets/b8e6f986-147a-43f2-a4da-8961d9396e9c" />
- <img width="300" height="225" alt="Walking" src="https://github.com/user-attachments/assets/fa7477f8-4e17-408b-b181-a0bb2274e35c" />            
+   <img width="460" height="81" alt="Screenshot 2026-07-19 183648-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/baa98997-7f82-448b-b34d-0f74b370caf8" />
 
-<img width="300" height="225" alt="till reaction pic made by mee" src="https://github.com/user-attachments/assets/5b6a55c8-1fa2-427a-a2e1-fac0e02599ab" />
+<img width="460" height="343" alt="Screenshot 2026-07-19 183357" src="https://github.com/user-attachments/assets/c27fd684-70ea-400a-b8f6-58bfc9466def" />
+<img width="441" height="87" alt="Screenshot 2026-07-19 183948-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/9308deb5-1c65-4644-ac16-8cabd3a1c7af" />
 
 
 
@@ -9,3 +9,4 @@
 
 
  
+(˶ᵔ ᵕ ᵔ˶) ‹𝟹    ୭ ˚. ᵎᵎ   Hi!
